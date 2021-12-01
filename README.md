@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @victor1711
 - 👀 I’m interested in Computer Related Stuff
-- 🌱 I’m currently learning Basics
+- 🌱 I’m currently pursuing Engineering
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me vibhorgoswami2000@gmail.com
 
